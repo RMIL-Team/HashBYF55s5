@@ -1,4 +1,4 @@
 
-# TeleGram Channel
+# TeleGram
 
-<a href="https://t.me/CybersecurityIQ">CybersecurityIQ</a>
+<a href="https://t.me/r00t94">MoSalem</a>
